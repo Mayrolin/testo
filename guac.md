@@ -1,5 +1,7 @@
 Approximate prep time: 1 hr (or several months if avocados are not in season)
 
+Produces 4 servings 
+
 Ingredients:
 - 2 avocados
 - 1 lime
@@ -9,8 +11,7 @@ Ingredients:
 
 Instructions:
 - cut and mash avocados
-- chop onion
 - squeeze lime
 - add salt
+- add cilantro 
 - and mix well
-- 
