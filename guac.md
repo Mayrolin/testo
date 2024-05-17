@@ -1,3 +1,5 @@
+Approximate prep time: 1 hr (or several months if avocados are not in season)
+
 Ingredients:
 - 2 avocados
 - 1 lime
